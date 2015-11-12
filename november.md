@@ -1,6 +1,7 @@
 Before the meeting:
-Get the Flags
-Arrange the room by splitting up the tables:
+==================
+* Get the Flags
+* Arrange the room by splitting up the tables:
   * put one table on one side and one on the other, both against the wall
   * As the boys arrive, try to have them distribute evenly between the tables.
 
@@ -8,8 +9,8 @@ As they are sitting down, have them draw pictures of foods they like, and think 
   
 Gathering:
 ========
-Scout Oath Game:
-  Materials:
+#### Scout Oath Game:
+* Materials:
   * two sets of cards with points of the scout oath, one numbered, one not
     * On my honer
     * I will do my best
@@ -21,6 +22,7 @@ Scout Oath Game:
     * physically strong
     * mentally awake
     * and morally straight
+* Directions:
   1. Each scout takes a non-numbered card in the scout oath at random
   2. Leader posts up the numbered cards of the scout oath in order
   3. Scouts put themselves in order by the points of the scout oath on their cards
@@ -41,11 +43,12 @@ Talk Time:
 =========
 * Calendar
   * Pack Meeting Next Thursday @ Prairie View -- Raingutter Regatta
-    * remind them that any glue on the boats will need time to dry, or the boats may sink.
+    * remind them that any glue on the boats will need time to dry, or the boats may fall apart if wet glue mixes with the water.
   * Parent Meeting Sun Dec 6th
   * Den Mtg Dec 10th
   * Pack Mtg Dec 17th
-* See if anyone brought snacks. If so, ask the scouts why each snack is healthy, otherwise ask them about a snack that they like. If time allows, also ask the scouts for some other ideas of healthy snacks.
+* Snacks -- (Tiger Bites #6)
+  * See if anyone brought snacks. If so, ask the scouts why each snack is healthy, otherwise ask them about a snack that they like. If time allows, also ask the scouts for some other ideas of healthy snacks.
 
 Activities:
 ==========
@@ -95,8 +98,11 @@ Activities:
 
 Closing:
 =====
-  * if time permits, play the Scout Oath Game from the beginning again.
-  * Oath, Law
-  * Flags
-    * have two different scouts and one adult for each flag
-    * after the oath and law, have those scouts carry the flags out to the hall
+* if time permits, play the Scout Oath Game from the beginning again.
+* Oath, Law
+* Flags
+  * have two different scouts and one adult for each flag
+  * after the oath and law, have those scouts carry the flags out to the hall
+
+CLEAN UP! (Tiger Bites #4)
+========================
