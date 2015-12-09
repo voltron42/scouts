@@ -1,23 +1,23 @@
 Cub Scout Requirements August 27, 2015 2
-2015–2016
+2015ï¿½2016
 Cub Scout
 Requirements
 Updated August 27, 2015
  Bobcat Requirements
-(2015–2016 Program Year)
+(2015ï¿½2016 Program Year)
 Cub Scout Requirements August 27, 2015 2
 
  Tiger Requirements
-(2015–2016 Program Year)
+(2015ï¿½2016 Program Year)
 Cub Scout Requirements August 27, 2015 3
 1. Complete each of the following Tiger required adventures with your den or family:
 a. Backyard Jungle
 b. Games Tigers Play
-c. My Family’s Duty to God
+c. My Familyï¿½s Duty to God
 d. Team Tiger
 e. Tiger Bites
 f. Tigers in the Wild
-2. Complete one Tiger elective adventure of your den or family’s choosing.
+2. Complete one Tiger elective adventure of your den or familyï¿½s choosing.
 
 TIGER REQUIRED ADVENTURES
 Tiger Adventure: Backyard Jungle
@@ -26,22 +26,8 @@ Tiger Adventure: Backyard Jungle
 3. Be helpful to plants and animals by planting a tree or other plant in your
 neighborhood.
 4. Build and hang a birdhouse.
-5. With your adult partner, go on a walk, and pick out two sounds you hear in your “jungle.”
+5. With your adult partner, go on a walk, and pick out two sounds you hear in your ï¿½jungle.ï¿½
 
-Tiger Adventure: Games Tigers Play
-4. While at a sporting event, ask a player or coach why he or she thinks it is important to be active.
-
-Tiger Adventure: Tiger Bites
-1. Identify three good food choices and three foods that would not be good choices.
-2. Show that you know the difference between a fruit and a vegetable. Eat one
-of each.
-3. With your adult partner, pick a job to help your family at mealtime. Do it every day
-for one week.
-4. Show you can keep yourself and your personal area clean.
-5. Talk with your adult partner about what foods you can eat with your fingers. Practice your
-manners when eating them.
-6. With your adult partner, plan and make a good snack choice or other nutritious food to share
-with your den.
 
 Tiger Adventure: Team Tiger
 1. List the different teams of which you are a part.
@@ -61,7 +47,7 @@ know how to get ready for this hike.
 a. Listen while your leader reads the Outdoor Code. Talk about how you can be clean in
 your outdoor manners.
 b. Listen while your leader reads the Leave No Trace Principles for Kids. Discuss why you
-should “Trash Your Trash.”
+should ï¿½Trash Your Trash.ï¿½
 c. Apply the Outdoor Code and Leave No Trace Principles for Kids on your Tiger den and
 pack outings. After one outing, share what you did to demonstrate the principles
 you discussed.
@@ -70,7 +56,7 @@ on the trail. List what you saw in your Tiger Handbook.
 5. Participate in an outdoor pack meeting or pack campout campfire. Sing a song and act out a skit
 with your Tiger den as part of the program.
  Tiger Requirements
-(2015–2016 Program Year)
+(2015ï¿½2016 Program Year)
 Cub Scout Requirements August 27, 2015 5
 6. Find two different trees and two different types of plants that grow in your area. Write their
 names in your Tiger Handbook.
@@ -98,12 +84,12 @@ and do it.
 4. Talk with your den and adult partner about polite language. Learn how to shake hands properly
 and introduce yourself.
 5. Play a game with your den. Then discuss how your den played politely.
-6. With your adult partner and den, work on a service project for your pack’s meeting place or
+6. With your adult partner and den, work on a service project for your packï¿½s meeting place or
 chartered organization.
 
 Tiger Elective Adventure: Family Stories
 1. Discuss with your adult partner and/or family where your family originated. Discuss
-their history, traditions, and culture—your family heritage. Share a story or bring
+their history, traditions, and cultureï¿½your family heritage. Share a story or bring
 something to share with your den about yourself and your family.
 2. Make a family crest.
 3. Visit your public library to find out information about your heritage.
@@ -185,11 +171,11 @@ a. Draw or create an art piece using shapes.
 b. Use tangrams to create shapes.
 
 Tiger Elective Adventure: Tiger-iffic!
-Complete 1–3 and one from 4–6.
+Complete 1ï¿½3 and one from 4ï¿½6.
 1. Play at least two different games by yourself; one may be a video game.
 2. Play a board game or another inside game with one or more members of your den.
 3. Play a problem-solving game with your den.
-4. With your parent’s or guardian’s permission:
+4. With your parentï¿½s or guardianï¿½s permission:
 a. Play a video game with family members in a family tournament.
 b. List at least three tips that would help someone who was learning how to play your
 favorite video game.
@@ -201,11 +187,11 @@ play the game.
 Tiger Elective Adventure: Tiger: Safe and Smart
 1. Do the following:
 a. Memorize your address, and say it to your den leader or adult partner.
-b. Memorize an emergency contact’s phone number, and say it to your den
+b. Memorize an emergency contactï¿½s phone number, and say it to your den
 leader or adult partner.
 c. Take the 911 safety quiz.
 2. Do the following:
-a. Show you can “Stop, Drop, and Roll.”
+a. Show you can ï¿½Stop, Drop, and Roll.ï¿½
 b. Show you know how to safely roll someone else in a blanket to put out a fire.
 3. Make a fire escape map with your adult partner.
 4. Explain your fire escape map, and try a practice fire drill at home.
@@ -236,10 +222,10 @@ of materials. Share it with your den.
 7. Visit a historical museum or landmark with your adult partner.
 
 Tiger Elective Adventures: Tiger Theater
-1. With your den, discuss the following types of theater: puppet shows, reader’s
+1. With your den, discuss the following types of theater: puppet shows, readerï¿½s
 theater, and pantomime.
 2. As a den, play a game of one-word charades with your adult partners.
 3. Make a puppet to show your den or display at a pack meeting.
-4. Perform a simple reader’s theater. Make a mask afterward to show what your
+4. Perform a simple readerï¿½s theater. Make a mask afterward to show what your
 character looks like.
 5. Watch a play or attend a story time at a library.
