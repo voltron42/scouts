@@ -12,10 +12,8 @@ Cub Scout Requirements August 27, 2015 2
 Cub Scout Requirements August 27, 2015 3
 1. Complete each of the following Tiger required adventures with your den or family:
 a. Backyard Jungle
-b. Games Tigers Play
 c. My Family's Duty to God
 d. Team Tiger
-e. Tiger Bites
 f. Tigers in the Wild
 2. Complete one Tiger elective adventure of your den or family's choosing.
 
@@ -29,36 +27,9 @@ neighborhood.
 5. With your adult partner, go on a walk, and pick out two sounds you hear in your "jungle."
 
 Tiger Adventure: Team Tiger
-1. List the different teams of which you are a part.
-2. With your den, make a den job chart that shows everyone doing something to help.
-As one of the den jobs, lead the Pledge of Allegiance at a den meeting.
-3. Pick two chores you will do at home once a week for a month.
-4. Make a chart to show three ways that members of your Tiger team are different
-from each other.
 5. Do an activity to help your community or neighborhood team.
 
 Tiger Adventure: Tigers in the Wild
-1. With your adult partner, name and collect the Cub Scout Six Essentials you need for
-a hike. Tell your den leader what you would need to add to your list if it rains.
-2. Go for a short hike with your den or family, and carry your own gear. Show you
-know how to get ready for this hike.
-3. Do the following:
-a. Listen while your leader reads the Outdoor Code. Talk about how you can be clean in
-your outdoor manners.
-b. Listen while your leader reads the Leave No Trace Principles for Kids. Discuss why you
-should "Trash Your Trash."
-c. Apply the Outdoor Code and Leave No Trace Principles for Kids on your Tiger den and
-pack outings. After one outing, share what you did to demonstrate the principles
-you discussed.
-4. While on the hike, find three different kinds of plants, animals, or signs that animals have been
-on the trail. List what you saw in your Tiger Handbook.
-5. Participate in an outdoor pack meeting or pack campout campfire. Sing a song and act out a skit
-with your Tiger den as part of the program.
- Tiger Requirements
-(2015 - 2016 Program Year)
-Cub Scout Requirements August 27, 2015 5
-6. Find two different trees and two different types of plants that grow in your area. Write their
-names in your Tiger Handbook.
 7. Visit a nearby nature center, zoo, or another outside place with your family or den. Learn more
 about two animals, and write down two interesting things about them in your Tiger Handbook.
 
@@ -159,30 +130,6 @@ learned with your den.
 college or high school astronomy teacher. Before you go, write down questions you might want
 to ask. Share what you learned.
 
-Tiger Elective Adventures: Stories in Shapes
-1. Visit an art gallery or a museum, explore an art website, or visit your library. Do
-each of the following:
-a. Look at pictures of some abstract art with your den or family. Decide what
-you like about the art, and share your ideas with the other Tigers.
-b. Create an art piece.
-2. Do the following:
-a. Draw or create an art piece using shapes.
-b. Use tangrams to create shapes.
-
-Tiger Elective Adventure: Tiger-iffic!
-Complete 1 - 3 and one from 4 - 6.
-1. Play at least two different games by yourself; one may be a video game.
-2. Play a board game or another inside game with one or more members of your den.
-3. Play a problem-solving game with your den.
-4. With your parent's or guardian's permission:
-a. Play a video game with family members in a family tournament.
-b. List at least three tips that would help someone who was learning how to play your
-favorite video game.
-c. Play an appropriate video game with a friend for 30 minutes.
-5. With other members of your den, invent a game, OR change the rules of a game you know, and
-play the game.
-6. Play a team game with your den.
-
 Tiger Elective Adventure: Tiger: Safe and Smart
 1. Do the following:
 a. Memorize your address, and say it to your den leader or adult partner.
@@ -228,3 +175,27 @@ theater, and pantomime.
 4. Perform a simple reader's theater. Make a mask afterward to show what your
 character looks like.
 5. Watch a play or attend a story time at a library.
+
+Tiger Elective Adventures: Stories in Shapes
+1. Visit an art gallery or a museum, explore an art website, or visit your library. Do
+each of the following:
+a. Look at pictures of some abstract art with your den or family. Decide what
+you like about the art, and share your ideas with the other Tigers.
+b. Create an art piece.
+2. Do the following:
+a. Draw or create an art piece using shapes.
+b. Use tangrams to create shapes.
+
+Tiger Elective Adventure: Tiger-iffic!
+Complete 1 - 3 and one from 4 - 6.
+1. Play at least two different games by yourself; one may be a video game.
+2. Play a board game or another inside game with one or more members of your den.
+3. Play a problem-solving game with your den.
+4. With your parent's or guardian's permission:
+a. Play a video game with family members in a family tournament.
+b. List at least three tips that would help someone who was learning how to play your
+favorite video game.
+c. Play an appropriate video game with a friend for 30 minutes.
+5. With other members of your den, invent a game, OR change the rules of a game you know, and
+play the game.
+6. Play a team game with your den.
