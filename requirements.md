@@ -19,19 +19,11 @@ f. Tigers in the Wild
 
 TIGER REQUIRED ADVENTURES
 Tiger Adventure: Backyard Jungle
-1. Take a 1-foot hike. Make a list of the living things you find on your 1-foot hike.
-2. Point out two different kinds of birds that live in your area.
-3. Be helpful to plants and animals by planting a tree or other plant in your
-neighborhood.
+3. Be helpful to plants and animals by planting a tree or other plant in your neighborhood.
 4. Build and hang a birdhouse.
-5. With your adult partner, go on a walk, and pick out two sounds you hear in your "jungle."
 
 Tiger Adventure: Team Tiger
 5. Do an activity to help your community or neighborhood team.
-
-Tiger Adventure: Tigers in the Wild
-7. Visit a nearby nature center, zoo, or another outside place with your family or den. Learn more
-about two animals, and write down two interesting things about them in your Tiger Handbook.
 
 Tiger Elective Adventure: Curiosity, Intrigue, and Magical Mysteries
 1. Learn a magic trick. Practice your magic trick so you can perform it in front of
