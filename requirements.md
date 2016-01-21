@@ -138,16 +138,6 @@ b. Show you know how to safely roll someone else in a blanket to put out a fire.
 
 Tiger Elective Adventures: Tiger Tag
 1. Choose one active game you like, and tell your den about it.
-2. Do the following:
-a. Play two relay games with your den and your adult partner.
-b. Tell your adult partner or the other Tigers what you liked best about each
-game.
-c. Have your den choose a relay game that everyone would like to play, and
-play it several times.
-3. With your adult partner, select an active outside game that you could play with the members of
-your den. Talk about your game at the den meeting. With your den, decide on a game to play.
-4. Play the game that your den has chosen. After the game, discuss with your den leader the
-meaning of being a good sport.
 
 Tiger Elective Adventures: Tiger Tales
 1. Create a tall tale with your den.
