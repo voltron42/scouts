@@ -12,46 +12,18 @@ Cub Scout Requirements August 27, 2015 2
 Cub Scout Requirements August 27, 2015 3
 1. Complete each of the following Tiger required adventures with your den or family:
 a. Backyard Jungle
-b. Games Tigers Play
 c. My Family's Duty to God
 d. Team Tiger
-e. Tiger Bites
 f. Tigers in the Wild
 2. Complete one Tiger elective adventure of your den or family's choosing.
 
 TIGER REQUIRED ADVENTURES
 Tiger Adventure: Backyard Jungle
-1. Take a 1-foot hike. Make a list of the living things you find on your 1-foot hike.
-2. Point out two different kinds of birds that live in your area.
-3. Be helpful to plants and animals by planting a tree or other plant in your
-neighborhood.
+3. Be helpful to plants and animals by planting a tree or other plant in your neighborhood.
 4. Build and hang a birdhouse.
-5. With your adult partner, go on a walk, and pick out two sounds you hear in your "jungle."
 
 Tiger Adventure: Team Tiger
 5. Do an activity to help your community or neighborhood team.
-
-Tiger Adventure: Tigers in the Wild
-1. With your adult partner, name and collect the Cub Scout Six Essentials you need for
-a hike. Tell your den leader what you would need to add to your list if it rains.
-2. Go for a short hike with your den or family, and carry your own gear. Show you
-know how to get ready for this hike.
-3. Do the following:
-a. Listen while your leader reads the Outdoor Code. Talk about how you can be clean in
-your outdoor manners.
-b. Listen while your leader reads the Leave No Trace Principles for Kids. Discuss why you
-should "Trash Your Trash."
-c. Apply the Outdoor Code and Leave No Trace Principles for Kids on your Tiger den and
-pack outings. After one outing, share what you did to demonstrate the principles
-you discussed.
-4. While on the hike, find three different kinds of plants, animals, or signs that animals have been
-on the trail. List what you saw in your Tiger Handbook.
-5. Participate in an outdoor pack meeting or pack campout campfire. Sing a song and act out a skit
-with your Tiger den as part of the program.
-6. Find two different trees and two different types of plants that grow in your area. Write their
-names in your Tiger Handbook.
-7. Visit a nearby nature center, zoo, or another outside place with your family or den. Learn more
-about two animals, and write down two interesting things about them in your Tiger Handbook.
 
 Tiger Elective Adventure: Curiosity, Intrigue, and Magical Mysteries
 1. Learn a magic trick. Practice your magic trick so you can perform it in front of
@@ -150,6 +122,42 @@ learned with your den.
 college or high school astronomy teacher. Before you go, write down questions you might want
 to ask. Share what you learned.
 
+Tiger Elective Adventure: Tiger: Safe and Smart
+1. Do the following:
+a. Memorize your address, and say it to your den leader or adult partner.
+b. Memorize an emergency contact's phone number, and say it to your den
+leader or adult partner.
+c. Take the 911 safety quiz.
+2. Do the following:
+a. Show you can "Stop, Drop, and Roll."
+b. Show you know how to safely roll someone else in a blanket to put out a fire.
+3. Make a fire escape map with your adult partner.
+4. Explain your fire escape map, and try a practice fire drill at home.
+5. Find the smoke detectors in your home. With the help of your adult partner, check the batteries.
+6. Visit an emergency responder station, or have an emergency responder visit you.
+
+Tiger Elective Adventures: Tiger Tag
+1. Choose one active game you like, and tell your den about it.
+
+Tiger Elective Adventures: Tiger Tales
+1. Create a tall tale with your den.
+2. Create your own tall tale. Share your tall tale with your den.
+3. Read a tall tale with your adult partner.
+4. Create a piece of art from a scene in the tall tale you have read, using your choice
+of materials. Share it with your den.
+5. Play a game from the past.
+6. Sing two folk songs.
+7. Visit a historical museum or landmark with your adult partner.
+
+Tiger Elective Adventures: Tiger Theater
+1. With your den, discuss the following types of theater: puppet shows, reader's
+theater, and pantomime.
+2. As a den, play a game of one-word charades with your adult partners.
+3. Make a puppet to show your den or display at a pack meeting.
+4. Perform a simple reader's theater. Make a mask afterward to show what your
+character looks like.
+5. Watch a play or attend a story time at a library.
+
 Tiger Elective Adventures: Stories in Shapes
 1. Visit an art gallery or a museum, explore an art website, or visit your library. Do
 each of the following:
@@ -173,49 +181,3 @@ c. Play an appropriate video game with a friend for 30 minutes.
 5. With other members of your den, invent a game, OR change the rules of a game you know, and
 play the game.
 6. Play a team game with your den.
-
-Tiger Elective Adventure: Tiger: Safe and Smart
-1. Do the following:
-a. Memorize your address, and say it to your den leader or adult partner.
-b. Memorize an emergency contact's phone number, and say it to your den
-leader or adult partner.
-c. Take the 911 safety quiz.
-2. Do the following:
-a. Show you can "Stop, Drop, and Roll."
-b. Show you know how to safely roll someone else in a blanket to put out a fire.
-3. Make a fire escape map with your adult partner.
-4. Explain your fire escape map, and try a practice fire drill at home.
-5. Find the smoke detectors in your home. With the help of your adult partner, check the batteries.
-6. Visit an emergency responder station, or have an emergency responder visit you.
-
-Tiger Elective Adventures: Tiger Tag
-1. Choose one active game you like, and tell your den about it.
-2. Do the following:
-a. Play two relay games with your den and your adult partner.
-b. Tell your adult partner or the other Tigers what you liked best about each
-game.
-c. Have your den choose a relay game that everyone would like to play, and
-play it several times.
-3. With your adult partner, select an active outside game that you could play with the members of
-your den. Talk about your game at the den meeting. With your den, decide on a game to play.
-4. Play the game that your den has chosen. After the game, discuss with your den leader the
-meaning of being a good sport.
-
-Tiger Elective Adventures: Tiger Tales
-1. Create a tall tale with your den.
-2. Create your own tall tale. Share your tall tale with your den.
-3. Read a tall tale with your adult partner.
-4. Create a piece of art from a scene in the tall tale you have read, using your choice
-of materials. Share it with your den.
-5. Play a game from the past.
-6. Sing two folk songs.
-7. Visit a historical museum or landmark with your adult partner.
-
-Tiger Elective Adventures: Tiger Theater
-1. With your den, discuss the following types of theater: puppet shows, reader's
-theater, and pantomime.
-2. As a den, play a game of one-word charades with your adult partners.
-3. Make a puppet to show your den or display at a pack meeting.
-4. Perform a simple reader's theater. Make a mask afterward to show what your
-character looks like.
-5. Watch a play or attend a story time at a library.
