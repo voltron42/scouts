@@ -29,12 +29,6 @@ neighborhood.
 5. With your adult partner, go on a walk, and pick out two sounds you hear in your "jungle."
 
 Tiger Adventure: Team Tiger
-1. List the different teams of which you are a part.
-2. With your den, make a den job chart that shows everyone doing something to help.
-As one of the den jobs, lead the Pledge of Allegiance at a den meeting.
-3. Pick two chores you will do at home once a week for a month.
-4. Make a chart to show three ways that members of your Tiger team are different
-from each other.
 5. Do an activity to help your community or neighborhood team.
 
 Tiger Adventure: Tigers in the Wild
@@ -54,9 +48,6 @@ you discussed.
 on the trail. List what you saw in your Tiger Handbook.
 5. Participate in an outdoor pack meeting or pack campout campfire. Sing a song and act out a skit
 with your Tiger den as part of the program.
- Tiger Requirements
-(2015 - 2016 Program Year)
-Cub Scout Requirements August 27, 2015 5
 6. Find two different trees and two different types of plants that grow in your area. Write their
 names in your Tiger Handbook.
 7. Visit a nearby nature center, zoo, or another outside place with your family or den. Learn more
