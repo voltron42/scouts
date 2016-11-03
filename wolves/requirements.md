@@ -7,7 +7,7 @@ Call of the Wild requirements
 5. Show or demonstrate what to do:
   a. A stranger approaches you, your family, or your belongings.
   b. In case of a natural disaster such as an earthquake or flood.
-  c. c. To keep from spreading your germs.
+  c. To keep from spreading your germs.
 6. On the campout, participate with your family or den in a campfire show. Prepare a skit or song, and then present it at the campfire for everyone else.
 7. Do the following:
   a. Recite the Outdoor Code with your leader.
